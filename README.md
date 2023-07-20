@@ -1,6 +1,6 @@
 # Ghost09a1
 I am: 
-  - an enthusiastic
+  - enthusiastic
   - self-motivated 
   - reliable
   - responsible and 
